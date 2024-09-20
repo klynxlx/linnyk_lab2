@@ -1,0 +1,1 @@
+# linnyk_lab1
